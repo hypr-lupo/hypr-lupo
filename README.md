@@ -1,7 +1,5 @@
 @hypr-lupo, aka, leo.  \
-they/them - eng/esp  \
-Master on nothing, novice on almost anything.  \
-On route to become The Genuinely Supra-Natural.  \
+he/him - eng/esp  \
 
 <!---
 hypr-lupo/hypr-lupo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
