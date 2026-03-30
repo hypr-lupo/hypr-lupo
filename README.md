@@ -34,4 +34,4 @@ Currently pursuing a **Master's in Prevention, Urban Security and Criminal Polic
 
 **Links**
 
-[LinkedIn](https://www.linkedin.com/in/leonavar/) · leonavar10@gmail.com
+[LinkedIn](https://www.linkedin.com/in/leonavar/) · javnavar@outlook.com
