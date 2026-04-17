@@ -2,6 +2,8 @@
 
 Political Scientist · Public Security · Data & AI
 
+> *Fucking shit up is the best way to learn!*
+
 ---
 
 I work at the intersection of public security, political analysis, and applied AI.
