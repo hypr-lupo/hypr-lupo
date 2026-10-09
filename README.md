@@ -2,8 +2,6 @@
 
 Political Scientist · Public Security · Data & AI
 
-> *Fucking shit up is the best way to learn!*
-
 ---
 
 I work at the intersection of public security, political analysis, and applied AI.
@@ -33,7 +31,3 @@ Currently pursuing a **Master's in Prevention, Urban Security and Criminal Polic
 - Transnational organized crime · criminal policy · urban security
 
 ---
-
-**Links**
-
-[LinkedIn](https://www.linkedin.com/in/leonavar/) · javnavar@outlook.com
